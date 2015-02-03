@@ -1,0 +1,12 @@
+#Season
+* [CSGO New Season Smokes and Flashes](https://www.youtube.com/watch?v=2KoS8qBeEDI)
+* [CS:GO Smoke Spots - New Season - T & CT Mid Smoke](https://www.youtube.com/watch?v=5thBAlyc91o)
+* [CSGO Season Smokes](https://www.youtube.com/watch?v=Pia-59snxpM)
+* [CS:GO Season - Smokes and Boost Spots](https://www.youtube.com/watch?v=1wMwkTH3zEQ)
+* [CS:GO de_season (Season's Edge) - Smoke Spot Tutorial!](https://www.youtube.com/watch?v=bQPgyEbpA_k)
+* [CSGO - Smoke Tutorial - Season - Mid and A Smokes](https://www.youtube.com/watch?v=YqZU03hL8Rg)
+* [\[CS:GO Pro Tips\] de_season - 3 important smokes](https://www.youtube.com/watch?v=kOhM1dowIkQ)
+* [CS:GO Tips: Crosshair Placement By: Tarik](https://www.youtube.com/watch?v=5LA6t4Fwb8Y)
+* [Basic smoke tutorial - Season](https://www.youtube.com/watch?v=7ktox1lTiKg)
+* [RUSH / DEFEND MEETING POINTS - SEASON | Counter-Strike: Global Offensive](https://www.youtube.com/watch?v=OxxrboU1vHM&index=39&list=WL)
+* [Season Playlist](https://www.youtube.com/playlist?list=PLV5ReMgPeRoajhYs8ftABI14de7uWvpuF)

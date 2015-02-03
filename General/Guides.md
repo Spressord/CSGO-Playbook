@@ -1,0 +1,10 @@
+#Guides
+* [Configure Your PC for Competitive CSGO](http://steamcommunity.com/sharedfiles/filedetails/?id=322206521)
+* [CS:GO Crosshair Generator](http://tools.dathost.net/)
+* [SET UP CS:GO LIKE A PRO](http://www.dcgaming.org/set-up-your-csgo-like-a-pro/)
+* [Practicing your Spray Patterns](https://www.reddit.com/r/GlobalOffensive/comments/2s1zmf/practicing_your_spray_patterns/)
+* [Small Tip On Getting Into A Bombsite](https://www.reddit.com/r/GlobalOffensive/comments/2s1qli/small_tip_on_getting_into_a_bombsite/)
+* [csgolikeapro.com Guide](http://csgolikeapro.com/index.php?title=Guide)
+* [csgohelp.com](http://csgohelp.com/)
+* [The Ultimate CS:GO Tricks&Tweaks Guide 2014](http://steamcommunity.com/sharedfiles/filedetails/?id=225142771)
+* [All the smokes and flashes for all the maps](http://steamcommunity.com/sharedfiles/filedetails/?id=359458939)

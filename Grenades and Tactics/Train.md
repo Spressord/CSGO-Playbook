@@ -1,0 +1,11 @@
+#Train
+* [CSGO New Train Smokes](https://www.youtube.com/watch?v=rBQEUdGiEYI)
+* [NEW de_train Smokes - Terrorist Side | CS:GO](https://www.youtube.com/watch?v=MVEbOJQJYFU)
+* [\[CS:GO\] NEW Train = new smokes TUTORIAL](https://www.youtube.com/watch?v=6qrvoqiRilc)
+* [CS:GO - New Train T Side Smokes](https://www.youtube.com/watch?v=hx0OAq0Pej0)
+* [CS:GO - New Train - Smokes / Nades on A](https://www.youtube.com/watch?v=GFENCQZtkLM)
+* [Review of the new Train, Smokes and Glitches !](https://www.youtube.com/watch?v=ZRW6QyhgerI)
+* [CS:GO - Smoke Tutorial - Train - Outer/A Bombsite](https://www.youtube.com/watch?v=0BA2b2LLQIA)
+* [CS:GO - New de_train - 3 Smokes for Bombsite A](https://www.youtube.com/watch?v=7bSuw4JIVa4)
+* [TOP 10 UNCOMMON SPOTS / ANGLES - TRAIN | Counter-Strike: Global Offensive](https://www.youtube.com/watch?v=ZXk3RRIrqfI)
+* [Train Playlist](https://www.youtube.com/playlist?list=PLV5ReMgPeRoYASSKkn8OAb3uA_O-tmqJC)
