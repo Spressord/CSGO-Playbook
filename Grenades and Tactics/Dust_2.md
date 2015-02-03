@@ -1,0 +1,13 @@
+#Dust 2
+* [CSGO Dust 2 Smoke and Flash Tutorial](https://www.youtube.com/watch?v=O4bZmOnCtc8)
+* [CS:GO Smokes Tutorial - Dust 2 Long A for Terrorist side](https://www.youtube.com/watch?v=wOnLBApdX8g)
+* [CS:GO Nade Spots - Dust 2, Car Retake Smoke](https://www.youtube.com/watch?v=BCNZmINOuD0)
+* [CSGO Dust2 Smokes and Flashes](https://www.youtube.com/watch?v=_wiZyCTfThY)
+* [CSGO Dust 2 Smokes For Middle](https://www.youtube.com/watch?v=-QFc13bKiU4)
+* [How to play de_dust2 terrorist side - default strategy](https://www.youtube.com/watch?v=j8qHbFkzkOU&list=WL)
+* [Long cross smoke](http://gfycat.com/RingedHonestIggypops)
+* [mOE's Pro AWP Tutorial - Dust2 [CT Side] - CS:GO](https://www.youtube.com/watch?v=SDhHbYEI5NE)
+* [CS:GO - Strat Series - Dust 2 - CT side GOD SMOKE](https://www.youtube.com/watch?v=ceQ_ZCZdO6U)
+* [RUSH / DEFEND MEETING POINTS - DUST2 | Counter-Strike: Global Offensive](https://www.youtube.com/watch?v=xKrSfg6BMgw&index=45&list=WL)
+* [TOP 10 UNCOMMON SPOTS / ANGLES - DUST2 | Counter-Strike: Global Offensive](https://www.youtube.com/watch?v=Ltqi74a6qkw&index=19&list=WL)
+* [De_Dust2 Chokepoint Analysis](https://www.youtube.com/watch?v=MGG7ExSWFnQ&index=12&list=WL)
